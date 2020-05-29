@@ -1,1 +1,9 @@
-Replace this with a list of your favorite things.
+* RZA
+* GZA
+* ODB
+* Inspectah Deck
+* Raekwon
+* U-God
+* Ghostface Killah
+* Method Man
+* Masta Killa
